@@ -1,6 +1,6 @@
 ## Welcome to BetterBBS.com
 
-百特論壇最新地址：
+百特論壇最新地址 (請收藏本頁面，以防下次找不到地址時查找)：
 
 ### https://better.hwz.tw/
 
