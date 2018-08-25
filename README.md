@@ -2,7 +2,7 @@
 
 百特論壇最新备用网址：
 
-https://bbs.baite.ga/
+https://better.hwz.tw
 
 請把本地址發佈頁加入收藏以免無法找到最新地址。
 
